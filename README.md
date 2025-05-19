@@ -1,1 +1,1 @@
-# Teste-2 de clonagem Rhuan e gay
+# Teste-2 de clonagem Rhuan
